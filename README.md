@@ -1,1 +1,0 @@
-# COVENANYOFGOD.github.io
